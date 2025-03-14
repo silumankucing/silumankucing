@@ -1,0 +1,1 @@
+Mechanical Design Engineer with full-time experience in the medical device industry. Engaged in side projects exploring personal interests in unmanned systems, computational design, cybersecurity and software engineering.
